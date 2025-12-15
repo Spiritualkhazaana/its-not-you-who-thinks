@@ -1,1 +1,3 @@
-# its-not-you-who-thinks
+# *It’s not you who thinks — You Are Being Thought | Alan Watts Truth About Mind*
+## *Discover the uncomfortable truth about your thoughts and consciousness. Learn why you are not the thinker of your thoughts and what this realization means for your freedom and peace. A 15-slide WebStory blending neuroscience, ancient wisdom, and deep self-inquiry. “Pause. Breathe. Notice.”*  [More details…](https://spiritualkhazaana.com/web-stories/its-not-you-who-thinks/)
+## #YouAreBeingThought #AlanWatts #Consciousness #NoSelf #Nonduality #MindTruth #SelfInquiry #SpiritualAwakening #Mindfulness #FreedomFromEgo #TrueNature
